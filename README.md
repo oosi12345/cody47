@@ -6,4 +6,4 @@
 - 😄 Pronouns: His/He
 - ⚡ Fun fact: I spend almost 7 hours on Android Studio Fixing bugs.
 - 👨‍💻 My Projects: Insta⁴⁷ (Instagram Modded APP) and OOS For GINKGO (PORT Oxygen OS ROM for Redmi Note 8)
-- 📫 You can stalk me here! xD: Instagram - [@belyksahil](https://www.instagram.com/belyksahil/) , Telegram - [@cody47](https://t.me/cody47)
+- 📫 You can stalk me here! xD: Instagram - [@belyksahil](https://www.instagram.com/belyksahil/) , Telegram - [@cody47](https://t.me/cody47) , Twitter - [@belyksahil](https://www.twitter.com/belyksahil)
