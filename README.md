@@ -7,4 +7,4 @@
 - ⚡ Fun fact: I spend almost 7 hours on Android Studio Fixing bugs.
 - 👨‍💻 My Projects: Insta⁴⁷ (Instagram Modded APP) and OOS For GINKGO (PORT Oxygen OS ROM for Redmi Note 8)
 - 📫 You can stalk me here! xD: Instagram - @belyksahil , Telegram - @cody47
-
+- [Instagram - @belyksahil](https://www.instagram.com/belyksahil/) , [Telegram - @cody47](https://t.me/cody47)
