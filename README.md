@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning KOTLIN/CSS.
 - 💬 Ask me about ANDROID and Tech related stuffs.
 - 😄 Pronouns: His/He
-- ⚡ Fun fact: I spend almost 12 hours on Android Studio Fixing bugs.
+- ⚡ Fun fact: I spend almost 7 hours on Android Studio Fixing bugs.
 - 👨‍💻 My Projects: Insta⁴⁷ (Instagram Modded APP) and OOS For GINKGO (PORT Oxygen OS ROM for Redmi Note 8)
 - 📫 You can stalk me here! xD: Instagram - @belyksahil , Telegram - @cody47
 
