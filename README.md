@@ -5,7 +5,6 @@
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I spend almost 7 hours on Android Studio Fixing bugs.
 
-<h3 align="center">A passionate frontend developer from India</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=cody47&label=Profile%20views&color=0e75b6&style=flat" alt="cody47" /> </p>
 
